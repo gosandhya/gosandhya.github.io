@@ -1,1 +1,1 @@
-# gosandhya.github.io
+# gosandhya.com
